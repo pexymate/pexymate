@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @pexymate
+- 🌱 I’m currently learning cyber security
+- 📫 How to reach me discord - pexymate
